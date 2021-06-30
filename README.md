@@ -1,0 +1,1 @@
+O curso está sendo importante por todo aprendizado novo que venho ganhando durante poucas aulas até então.
